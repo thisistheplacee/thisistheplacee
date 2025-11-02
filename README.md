@@ -1,2 +1,2 @@
 c+h is fine , other bsd ocs pls int !!
-<img width="666" height="433" alt="Image" src="https://github.com/user-attachments/assets/c217175e-4aa9-424f-bc87-fc6b072e8a57" />
+![Image](https://github.com/user-attachments/assets/ff2483ee-056e-4f19-9a36-f8d29f34d801)
