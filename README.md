@@ -2,8 +2,6 @@
   <h4 align="center"
     </a>
     connor / they/them <br>
-    anti-harassment - pro-ship - darkship <br>
-    I darkship as a coping mech, just block me if u don't like it, antis fuck off<br>
 <img width="420" height="498" alt="Image" src="https://github.com/user-attachments/assets/e730f8ec-d5aa-4787-9e41-e968dba147a9" />
   <br> c+h welcomed , 16+ only for interactions, -16 DNI <br>
    main fandoms are: fallout, FNAF , WHA, RE,DBH + more i'm too lazy to list <br>
